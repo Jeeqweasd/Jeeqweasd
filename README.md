@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jeeqweasd
+- 👋 Hi, I’m @Jee
 - 👀 I’m interested in gaming 
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on ...
